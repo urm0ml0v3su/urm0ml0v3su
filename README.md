@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @urm0ml0v3su
+- 👋 Hi, I’m nate
 - 👀 I’m interested in anime and the dsmp
 - 🌱 I’m currently learning French (in school but I want to learn Russian)
 
